@@ -2,7 +2,7 @@
 - 👀 I’m interested in DS,ML,AI
 - 🌱 I’m currently learning Python ML
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: Whatsapp: https://wa.me/918073917763, InstaID: @shashankashashi2001, LinkedIn URL:https://www.linkedin.com/in/shashanka-g-ba44b5202
+- 📫 How to reach me: Whatsapp: https://wa.me/918073917763, InstaID: @shashankashashi2001, LinkedIn URL:https://www.linkedin.com/in/shashanka-g-ba44b5202, mail:shashankashashi2001gmail.com
 
 
 <!---
